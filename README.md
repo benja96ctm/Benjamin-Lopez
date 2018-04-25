@@ -1,2 +1,0 @@
-# Benjamin-Lopez
-trabajo individual 
